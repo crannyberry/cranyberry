@@ -5,7 +5,7 @@
 ꒰　　　Any nicknames are ok as long as you're my friend　　꒱
 </p>
 <p align="center">
-꒰　　　I am usually the mosy active when my friends are online but you can go up to me at any time but whisper beforehand!　　꒱
+꒰　　　I am usually the most active when my friends are online but you can go up to me at any time but whisper beforehand!　　꒱
 </p>
 <p align="center">
 ꒰　　　I prefer if people from qsmp/yflsmp2 fandom int w me !　　꒱
